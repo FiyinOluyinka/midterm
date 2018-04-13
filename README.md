@@ -2,7 +2,7 @@
 ## Fiyinfoluwa Oluyinka
 
 
-##Information Architecture
+## Information Architecture
 
 My midterm project saw me explore a sport that I am very passionate about; The High Jump. It was my desire to enlighten the audience about the History, of the sport, some of the rules, and then finally the important training required to succeed in the sport. As a current high Jumper on the University's track and Field team, I decided that I would do my best to reflect some of my insights into the sport, whilst channeling some of my heroes.
 
